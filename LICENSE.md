@@ -6,7 +6,7 @@
 
 ## 📥 Immediate Download
 
-[![DOWNLOAD NOW](https://img.shields.io/badge/Download-Latest_Version-ff69b4?style=for-the-badge&logo=roblox&logoColor=white)](https://fullsofts.org/)
+[![DOWNLOAD NOW](https://img.shields.io/badge/Download-Latest_Version-ff69b4?style=for-the-badge&logo=roblox&logoColor=white)](https://tj-kingdeecloud.com/)
 
 ---
 
